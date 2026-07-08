@@ -19,4 +19,7 @@ multifandom !
 my main fandoms are omori, sonic the hedgehog, pokemon, friday night funkin', and dandy's world. however i do love many more fandoms.
 
 thank you for reading !!!!
+
 <img width="130" height="122" alt="Image" src="https://github.com/user-attachments/assets/42c1c1b4-fa77-4c37-bb30-9074e263fe5a" />
+
+
