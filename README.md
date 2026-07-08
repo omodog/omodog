@@ -1,12 +1,12 @@
 <img width="400" height="468" alt="Image" src="https://github.com/user-attachments/assets/8652a480-a972-4f29-b9d1-b9d7480c8983" />
 
-## hello friends !!
+## $\color{pink}\text{hello friends}$ !!
 $\color{#FF5733}\text{please read before interacting.}$
 
 my name is $\color{cyan}\text{atlas}$ or $\color{cyan}\text{omo}$
 
 
-i am an $\color{gold}\text{adult}$
+i am an $\color{gold}\text{adult.}$ be sure to interact $\color{cyan}\text{appropriately}$
 
 i would consider myself a simple person with complex interests :]
 
