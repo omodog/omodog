@@ -1,6 +1,6 @@
 <img width="400" height="468" alt="Image" src="https://github.com/user-attachments/assets/8652a480-a972-4f29-b9d1-b9d7480c8983" />
 
-## Hello !!
+## Hello folks !!
 My name is Atlas or Omo !
 
 I would consider myself a simple person with complex interests :]
