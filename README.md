@@ -1,14 +1,22 @@
 <img width="400" height="468" alt="Image" src="https://github.com/user-attachments/assets/8652a480-a972-4f29-b9d1-b9d7480c8983" />
 
-## Hello folks !!
-My name is Atlas or Omo !
+## hello friends !!
+please read before interacting.
 
-I would consider myself a simple person with complex interests :]
+my name is atlas or omo !
 
-On ponytown semi often, feel free to sit with me I love company !!
+i would consider myself a simple person with complex interests :]
 
-Whisper to interact, but interact with care please ! If I do not respond I may be offtab or unsure how to respond. Sometimes it may take me a while to find my words.
+on ponytown semi often, feel free to sit with me i love company !!
+
+whisper to interact, but interact with care please ! if i do not respond i may be offtab or unsure how to respond. sometimes it may take me a while to find my words.
 
 <img width="130" height="119" alt="Image" src="https://github.com/user-attachments/assets/4d85de0c-555f-4aff-94ce-a4d0b5df47e9" />
 
+i have many interests, however i have a passion for animal care, art, and nature in general !!
 
+multifandom ! 
+my main fandoms are omori, sonic the hedgehog, pokemon, friday night funkin', and dandy's world. however i do love many more fandoms.
+
+thank you for reading !!!!
+<img width="130" height="122" alt="Image" src="https://github.com/user-attachments/assets/42c1c1b4-fa77-4c37-bb30-9074e263fe5a" />
