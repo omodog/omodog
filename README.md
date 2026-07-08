@@ -3,7 +3,9 @@
 ## hello friends !!
 please read before interacting.
 
-my name is atlas or omo !
+my name is <code style="color : Aqua">atlas</code> or <code style="color : OrangeRed">omo</code> !
+
+<code style="color :Gold">adult</code>
 
 i would consider myself a simple person with complex interests :]
 
