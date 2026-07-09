@@ -1,12 +1,12 @@
 <img width="400" height="468" alt="Image" src="https://github.com/user-attachments/assets/8652a480-a972-4f29-b9d1-b9d7480c8983" />
 
 ## $\color{pink}\text{hello friends}$ !!
-$\color{#FF5733}\text{please read before interacting.}$
+$\color{#ff991c}\text{please read before interacting.}$
 
-my name is $\color{cyan}\text{atlas}$ or $\color{cyan}\text{omo}$
+my name is $\color{59bfff}\text{atlas}$ or $\color{59bfff}\text{omo}$
 
 
-i am an $\color{gold}\text{adult.}$ be sure to interact $\color{cyan}\text{appropriately}$
+i am an $\color{ffee8c}\text{adult.}$ be sure to interact $\color{ffee8c}\text{appropriately}$
 
 i would consider myself a simple person with complex interests :]
 
@@ -18,13 +18,13 @@ whisper to interact, but interact with care please ! if i do not respond i may b
 
 i have many interests, however i have a passion for animal care, art, and nature in general !!
 
-$\color{#FF5733}\text{multifandom !}$
+$\color{#ff991c}\text{multifandom !}$
 
 my main fandoms are omori, sonic the hedgehog, pokemon, friday night funkin', and dandy's world. however i do love many more fandoms.
 
 
 
-$\color{cyan}\text{thank you for reading !!!!}$
+$\color{59bfff}\text{thank you for reading !!!!}$
 
 <img width="130" height="122" alt="Image" src="https://github.com/user-attachments/assets/42c1c1b4-fa77-4c37-bb30-9074e263fe5a" />
 
