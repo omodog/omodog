@@ -10,7 +10,7 @@ i am an $\color{ffee8c}\text{adult.}$ be sure to interact $\color{ffee8c}\text{a
 
 i would consider myself a simple person with complex interests :]
 
-on ponytown semi often, feel free to sit with me i love company !!
+on ponytown semi often. feel free to sit with me, i love company !!
 
 whisper to interact, but interact with care please ! if i do not respond i may be offtab or unsure how to respond. sometimes it may take me a while to find my words.
 
