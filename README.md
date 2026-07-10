@@ -18,7 +18,7 @@ whisper to interact, but interact with care please ! if i do not respond i may b
 
 i have many interests, however i have a passion for animal care, art, and nature in general !!
 
-$\color{#ff991c}\text{multifandom !}$
+$\color{#ff991c}\text{multi-fandom enjoyer !}$
 
 my main fandoms are omori, sonic the hedgehog, pokemon, friday night funkin', and dandy's world. however i do love many more fandoms.
 
