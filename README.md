@@ -17,7 +17,7 @@ whisper to interact, but interact with care please ! if i do not respond i may b
 
 <img width="130" height="119" alt="Image" src="https://github.com/user-attachments/assets/4d85de0c-555f-4aff-94ce-a4d0b5df47e9" />
 
-i have many interests, however i have a passion for animal care, art, and nature in general !!
+i have many interests! however, i have a passion for animal care, art, and nature in general !!
 
 $\color{#ff991c}\text{multi-fandom enjoyer !}$
 
