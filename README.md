@@ -6,7 +6,8 @@ $\color{#ff991c}\text{please read before interacting.}$
 my name is $\color{59bfff}\text{atlas}$ or $\color{59bfff}\text{omo}$
 
 
-i am an $\color{ffee8c}\text{adult.}$ be sure to interact $\color{ffee8c}\text{appropriately}$
+i am an $\color{ffee8c}\text{adult.}$ please interact $\color{ffee8c}\text{appropriately.}$
+keep any talk with me strictly sfw, regardless of which server i'm on.
 
 i would consider myself a simple person with complex interests :]
 
