@@ -13,7 +13,7 @@ i would consider myself a simple person with complex interests :]
 
 on ponytown semi often. feel free to sit with me, i love company !!
 
-whisper to interact, but interact with care please ! if i do not respond i may be offtab or unsure how to respond. sometimes it may take me a while to find my words. i love clovers and pearls !
+whisper to interact, but interact with care please ! if i do not respond i may be offtab or unsure how to respond. sometimes it may take me a while to find my words. i love clovers !
 
 <img width="130" height="119" alt="Image" src="https://github.com/user-attachments/assets/4d85de0c-555f-4aff-94ce-a4d0b5df47e9" />
 
