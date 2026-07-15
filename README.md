@@ -21,7 +21,7 @@ i have many interests! however, i have a passion for animal care, art, and natur
 
 $\color{#ff991c}\text{multi-fandom enjoyer !}$
 
-my main fandoms are omori, sonic the hedgehog, pokemon, friday night funkin', and dandy's world. however i do love many more fandoms.
+my main fandoms are omori, sonic the hedgehog, pokemon, and friday night funkin'. however i do love many more fandoms.
 
 
 
